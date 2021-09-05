@@ -1,3 +1,5 @@
+- 👨🏻‍💻 I’m currently working on something cool
+- 📝 I regulary write articles on [medium](https://medium.com/@a.mubiden)
 - 👋 Hi, I’m @salalem-ahmad
 - 👀 I’m interested in cross-platform frameworks
 - 🌱 I’m currently learning Flutter
