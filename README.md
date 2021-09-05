@@ -1,4 +1,4 @@
-**Hi there, I'm [Ahmad Almubiden](https://www.linkedin.com/in/mubideen/)**
+**Hi there, I'm [Ahmad Almubiden](https://www.linkedin.com/in/mubideen/)** :wave:
 
 I love ☕ 🍕, and 🏇
 
